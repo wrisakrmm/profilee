@@ -1,7 +1,7 @@
 ### call me riris guys.
 
 <!--
-**fdilaa/fdilaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**wrisakrmm/wrisakrmm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 <!--BIO-->
 🧕🏻 My name is `RIRIS`. I’m `17 years old`. 
